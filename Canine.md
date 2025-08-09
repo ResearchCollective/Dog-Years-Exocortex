@@ -1,10 +1,15 @@
 epigenetic age
 https://epipaws.com/products/agetest
-test
 
+
+companion therapy - inflatable plate
+
+[https://www.tekscan.com/products-solutions/animal-gait-analysis](https://www.google.com/url?q=https://www.tekscan.com/products-solutions/animal-gait-analysis&sa=D&source=docs&ust=1748498405778905&usg=AOvVaw1WZAdeVy6bnfdqHVpsv67c)
 
 To Research:
 Adequan OA Canine Drug
+**https://animaldrugsatfda.fda.gov/adafda/app/search/public/document/downloadFoi/3696**
+
 
 Current Treatments - 
 intraarticular therapy
@@ -184,3 +189,6 @@ Also contact: Dr Tracy Hill
 tracy.hill@ethosvet.com
 Tina Rice
 tina.rice@ethosvet.com
+
+ Former Loyal employee
+ [**gregoire.thouvenin@gmail.com**](mailto:gregoire.thouvenin@gmail.com) [**https://www.linkedin.com/in/gregthouvenin/**](https://www.linkedin.com/in/gregthouvenin/)
